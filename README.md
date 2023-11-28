@@ -1,0 +1,3 @@
+# Pot-Of-Gold-Prac-by-JONAHtheGOAT
+
+I AM THE GOAT OF CODING, MY DAD IS ELON MUSK
